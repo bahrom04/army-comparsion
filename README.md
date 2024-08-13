@@ -1,1 +1,2 @@
-[2024-08-11 15-45-12.mp4](2024-08-11%2015-45-12.mp4)
+![SCR-20240813-nleg.jpeg](Assets%2Fmedia%2FSCR-20240813-nleg.jpeg)
+![SCR-20240813-nlkq.jpeg](Assets%2Fmedia%2FSCR-20240813-nlkq.jpeg)
